@@ -7,5 +7,5 @@ that has been raised speaking a language can speak and understand it like a nati
 I have been living with this isolation from everybody. Yes I can talk fluintly in there language, but I don't understand what they are 
 saying to me, so it ends there. They say something and I respond and then they say something else and I don't understand and they give up,
 that's it! I can't really have a relationship with any of them because I don't understand what they are saying. Well, take it from me, 
-an Anglo/Saxon American man that fell in love with the beautiful Spanish ladies and then got stuck here in Miami. Don't get me wrong, I
+an Anglo/Saxon American man that fell in love with the beautiful Spanish ladies and then got stuck here in Miami, either learn the second language well or don't live where you don't understand the language of the majority of the people who live there. Don't get me wrong, I
 love my life but it is just a drag that I am an outsider in a world that is not of my youth.
