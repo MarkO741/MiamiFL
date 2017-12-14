@@ -8,4 +8,4 @@ I have been living with this isolation from everybody. Yes I can talk fluintly i
 saying to me, so it ends there. They say something and I respond and then they say something else and I don't understand and they give up,
 that's it! I can't really have a relationship with many of them because I don't understand what they are saying. Well, take it from me, 
 an Anglo/Saxon American man that fell in love with the beautiful Spanish ladies and then got stuck here in Miami, either learn the language so you can understand the people who live there or don't live there. Don't get me wrong, I
-love my life but it is just a drag that I am an outsider in a world that is not of my youth.
+love my life but it is just a drag that I am an outsider in a world where I can not have a real conversation with many of the people in Miami, FL.
